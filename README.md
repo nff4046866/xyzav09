@@ -20,4 +20,4 @@
 结语  
 通过选择优质平台观看日本AV影片，观众不仅可以享受高清、无广告的观看体验，还能确保自己的隐私和安全。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/nff4046866/xyzav09)</span>
